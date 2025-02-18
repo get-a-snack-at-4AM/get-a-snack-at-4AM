@@ -1,6 +1,6 @@
 ![divider start](https://files.catbox.moe/6mfmr7.png)
 
-https://gasa4.atabook.org/
+
 
 
 10:08 PM[You just a boy.] glups... *i gasp in a nervous way* ne-nerdies....?! *i scream in pain
