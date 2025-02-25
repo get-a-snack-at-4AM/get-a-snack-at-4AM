@@ -10,13 +10,13 @@
   <a href="https://en.pronouns.page/@gasa4">pronouns</a><br>
  
 
+i tend to be a freak sorry i will iwc if ur uncomfy (im too lazy to center this)
 <p align="center">this account is for pony town!</p>
 <p align="center">⠀◝‿ cashier, beren, or any of the names listed in my pronouns page, which i suppose shall be linked at the top.</p>
-<p align="center">narcissistic p-did schizosystem 　ᵔᵔ  </p>
+<p align="center">p-did schizosystem , DPDᵔᵔ  </p>
 <p align="center">introject  ྀ༏ིྀ　‿　 </p>
 <p align="center">i love it when people refer to me as my source⠀𓈒⠀⠀𓈒⠀⠀𓈒⠀ yes please  </p>
 <p align="center">cetrified cashdummy enthuiast AND CEO!!!!!!!!!!!</p>
-<p align="center">i love it when people refer to me as my source⠀𓈒⠀⠀𓈒⠀⠀𓈒⠀ yes please  </p>
 <p align="center">C+H !! no need to ask :3c if you are hesitant then u can whisper me and ask i dont mind  </p>
 <p align="center">feel free 2 come up to me and say hi!  </p>
 
