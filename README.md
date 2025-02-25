@@ -8,7 +8,7 @@
 <p align="center">
   <a href="https://gasa4.atabook.org/">atabook</a><br>
   <a href="https://en.pronouns.page/@gasa4">pronouns</a><br>
- 
+  <a href="https://rentry.co/snackcorre">rentry (please check it out)</a><br>
 
 i tend to be a freak sorry i will iwc if ur uncomfy (im too lazy to center this)
 <p align="center">this account is for pony town!</p>
